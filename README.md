@@ -1,6 +1,6 @@
 # Metabolism and Fat Burn Coffee: A Practical Wellness Guide
 
-![Java Burn](https://raw.githubusercontent.com/healthynutrix/fat-burn-coffee-wellness/main/index-meta.webp)
+
 
 Metabolism plays a significant role in how your body uses energy. It affects how you feel, how much weight you gain or lose, and how easily you burn calories. One interesting area of focus in health and wellness is the connection between metabolism and coffee - especially special blends that aim to support fat burning.
 
